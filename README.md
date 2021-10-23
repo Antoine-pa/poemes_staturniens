@@ -1,4 +1,5 @@
 # poemes_staturniens
+
 1. 
 
    
@@ -26,18 +27,16 @@
 
       
 
-   4. proche de la vie du poète : 
+   4. proche de la vie du poète :
 
-      MONSIEUR PRUDHOMME p34
-
-      «Monsieur Prudhomme» (page 34) est un poème proche de la vie du poète je pense car la porté du poème est à la fois la bourgeoisie mais aussi peut être son gendre, le mari de sa cousine dont il était amoureux.
+      «Le Rossignol» (page 28) est un poème proche de la vie du poète. En effet, durant tout le poème, Verlaine cherche a raconter le souvenir d'un amour perdu, l'amour qu'il portait à Élisa sa cousine "De l'oiseau qui fut mon Premier Amour"(v13) et donne donc un sentiment de mal-être. Il compare son cœur a un arbre, arbre qui se reflète dans l'eau qui symbolise ses regrets "De mon cœur mirant son tronc plié d'aune"(v4), "Au tain violet de l'eau des Regrets"(v5) .
 
       
 
    
 
-4)  Au niveau de la forme Paul Verlaine utilise le sonnet dans «Nevermore» ou encore «Monsieur Prudhomme». Mais il s’amuse avec les formes traditionnelles en inversant le sonnet classique dans «&nbsp;Résignation&nbsp;» (deux tercets suivis de deux quatrains). S’il utilise beaucoup de vers pairs, il commence à utiliser des vers impairs qui selon lui donnent plus de musicalité à la poésie comme dans «&nbsp;Cauchemar&nbsp;» (heptasyllabes), « Marine&nbsp;» et «&nbsp;Soleils couchants&nbsp;» (pentasyllabes).
+4)  *Poèmes Saturniens* est un recueil complexe qui mêle modernité et ancienneté. En effet Verlaine utilise les structures poétiques classique comme le sonnet régulièrement comme dans le poème «Nevermore» tout en innovent comme dans le poème «Chanson d'Automne» avec une structure nouvelle de trois sizains et des vers de quatre syllabes. De plus il utilise des vers avec un nombre de syllabe impair ce qui  n'est absolument pas traditionnel comme dans le poème «Soleil Couchant». Le recueil fait aussi parti du parcours modernité poétique car Verlaine renouvelle les thèmes en provocant en parlant par exemple de la bourgeoisie comme dans le poème «Monsieur Prudhomme».
 
    
 
-5) SOLEILS COUCHANTS p21
+5) J'ai choisi de lire le poème «Soleil Couchant» ([lien vidéo](https://youtu.be))
