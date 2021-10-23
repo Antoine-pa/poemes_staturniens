@@ -1,4 +1,4 @@
-#*poèmes staturniens*
+#poèmes staturniens
 
 1. J'ai choisis de prendre le recueil *poèmes saturniens* car je me reconnais a la fois dans la mélancolie des poèmes mais aussi dans son romantisme et pour finir, J'avais beaucoup aimé la lecture que vous nous aviez faite et le nom du recueil m'avais intrigué.
 
