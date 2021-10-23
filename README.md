@@ -1,10 +1,10 @@
 # *poèmes staturniens*
 
-1. J'ai choisi de prendre le recueil *poèmes saturniens* car je me reconnais à la fois dans la mélancolie des poèmes mais aussi dans son romantisme et pour finir, j'avais beaucoup aimé la lecture que vous nous aviez faite et le nom du recueil m'avais intrigué.
+1. J'ai choisi de prendre le recueil *poèmes saturniens* car je me reconnais à la fois dans la mélancolie des poèmes mais aussi dans son romantisme. Pour finir, j'avais beaucoup aimé la lecture que vous nous aviez faite et le nom du recueil m'avait intrigué.
 
    
 
-2. Paul Verlaine est un poète né le 30 mars 1844. Verlaine se met à écrire des poèmes durant ses études au lycée par ennui en s'inspirant de Baudelaire et de Victor Hugo. Il publia son premier recueil de poème, *Poèmes Saturniens* en 1866 à l'age de 22 ans. Verlaine était amoureux d'une cousine, Élisa qui mourut en 1867. Suite a sa mort, Verlaine sombra dans l'alcool avant de finalement se marier en 1970 avec Mathilde Mauté avec qui il aura un enfant, Georges Verlaine, avant de rencontrer Arthur Rimbaud dont il tomba amoureux. Cette rencontre ruina son mariage et sa relation conflictuelle avec Rimbaud conduisit a une dispute durant laquelle Verlaine tira sur Rimbaud. Il finira par renouer avec la religion catholique et son fils. Il mourut à l'age de 51 ans le 8 janvier 1896.
+2. Paul Verlaine est un poète né le 30 mars 1844. Il se met à écrire des poèmes durant ses études au lycée par ennui en s'inspirant de Baudelaire. Il publia son premier recueil de poème, *Poèmes Saturniens* en 1866 à l'age de 22 ans. Verlaine était amoureux d'une cousine, Élisa qui mourut en 1867. Suite à sa mort, Verlaine sombra dans l'alcool avant de finalement se marier en 1970 avec Mathilde Mauté avec qui il aura un enfant, Georges Verlaine, avant de rencontrer Arthur Rimbaud dont il tomba amoureux. Cette rencontre ruina son mariage et sa relation conflictuelle avec Rimbaud conduisit à une dispute durant laquelle Verlaine tira sur Rimbaud. Il finira par renouer avec la religion catholique et son fils. Il mourut à l'age de 51 ans le 8 janvier 1896.
 
    
 
