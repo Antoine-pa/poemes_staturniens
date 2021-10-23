@@ -8,7 +8,7 @@
 
    
 
-3. 1. ému :
+3. # un poème émouvant
 
       J'ai choisi «Nevermore» (page 7) comme poème qui m'a ému car Verlaine arrive très bien a nous décrire la scène du poème notamment un à six en utilisant plein de détails "L'automne 
       Faisait voler la grive à travers l'air atone" (v1-2). La scène d'un souvenir avec une femme. Une scène romantique et douce dont il essaie désespérément de garder un souvenir par nostalgie comme une obsession qui se marque par une insistance sur sa voix par exemple au vers 8 et 9. Ce poème est sensé nous faire rappeler des souvenirs sur nos amours et c'est ce qui m'a touché.
